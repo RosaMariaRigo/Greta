@@ -1,0 +1,2 @@
+# Greta
+Hellsehen Wahrsagen 
